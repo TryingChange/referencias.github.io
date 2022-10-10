@@ -1,1 +1,1 @@
-# referências usadas durante meu aprendizado e outros sites ou aplicativos usados.
+# sites ou aplicativos usados durante meu aprendizado.
